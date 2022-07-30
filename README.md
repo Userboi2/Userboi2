@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Userboi2, I'm a python lover
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me? Mannerboju#7364
+- More : .... *silence*
